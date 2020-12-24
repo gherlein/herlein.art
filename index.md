@@ -4,4 +4,4 @@ This domain is a gift to Ella Herlein for life. All annual domain fees will be p
 
 Merry Christmas!
 
-Love, Mom and Dad
+Love, Dad
